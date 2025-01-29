@@ -1,1 +1,7 @@
-# FitnessFreak_Figma
+# FitnessFreak_Figma![Screenshot 2025-01-29 232231](https://github.com/user-attachments/assets/42f3cc3b-d0e2-43fc-8f89-d318d7c065ba)
+![Screenshot 2025-01-29 232241](https://github.com/user-attachments/assets/48cd8b9d-79f6-4fc9-b05a-9d80e8fcf007)
+![Screenshot 2025-01-29 232248](https://github.com/user-attachments/assets/0dbbacd9-3afb-40c4-ab83-57652a997830)
+![Screenshot 2025-01-29 232259](https://github.com/user-attachments/assets/4a6411a5-a587-48e1-87bc-60680009c7c0)
+![Screenshot 2025-01-29 232309](https://github.com/user-attachments/assets/39297d84-b2ff-44b2-bba3-892e5d8e632c)
+![Screenshot 2025-01-29 232318](https://github.com/user-attachments/assets/bbb7bd30-d50b-40b0-bce0-528e93a34687)
+![Screenshot 2025-01-29 232327](https://github.com/user-attachments/assets/636b9642-999d-4a59-87dc-44f8eb56fe58)
